@@ -1,2 +1,7 @@
 # app-dev
-My first respiratory
+
+## My favorite Movie or Series
+
+- Sandman S1 and S2
+- The Kingsman Golden Circle
+- Batang Quiapo
