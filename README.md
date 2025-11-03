@@ -2,6 +2,18 @@
 
 ## My favorite Movie or Series
 
-- Sandman S1 and S2
-- The Kingsman Golden Circle
-- Batang Quiapo
+### KingsMan
+> This story is all about the British spy who have a mission against to the exploiters / drug syndicate
+
+- Eggsy
+- Roxy
+- Harry
+- Merlin
+- Arthur
+- Charlie
+- Valentine
+- Poppy
+
+  
+
+  
